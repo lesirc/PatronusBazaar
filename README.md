@@ -1,1 +1,1 @@
-Harry Potter theme e-commrce website
+Harry Potter theme e-commerce website
